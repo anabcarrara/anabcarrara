@@ -16,7 +16,8 @@ Meu nome é Ana Beatriz Carrara
 @alurastartestudante
 
 
-https://media.tenor.com/V0F9NjlwtfcAAAAM/wave-joy.gif
+
+![image](https://github.com/anabcarrara/anabcarrara/assets/172605075/a6f62043-64df-4900-aa79-ae48da24e2cc)
 
 
 
