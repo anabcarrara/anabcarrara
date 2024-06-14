@@ -16,7 +16,9 @@ Meu nome é Ana Beatriz Carrara
 @alurastartestudante
 
 
-![descrição do GIF](link GIF do Tenor)
+![image](https://github.com/anabcarrara/anabcarrara/assets/172605075/0505d186-3b35-4359-9edc-5560764b7ff2)
+
+
 
 
 
